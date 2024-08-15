@@ -1,7 +1,6 @@
-# 一键下载元梦之星 :-)
+# 跳转到川大官网 :-)
 快发给你的朋友吧
 
-https://the-brotherhood-of-scu.github.io/sexy_videos/
+https://the-brotherhood-of-scu.github.io/xhb-domain/
 
 
-注：要用手机QQ打开才会自动下载
